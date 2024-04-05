@@ -13,7 +13,7 @@ I'm passionate about linguistics and language-related work, with nearly 8 years 
 📫 You can reach me via:
 - LinkedIn: [(https://www.linkedin.com/in/sucifitriany/)]
 - Email: [sucibrooks86@gmail.com]
-- Portfolio: [Your Portfolio or Personal Website]
+- Portfolio: [https://www.clippings.me/sucifitriany]
 
 Feel free to explore my repositories, and let's create something amazing together! 🚀
 
