@@ -1,7 +1,8 @@
 # Hi there, I'm Suci Fitriany! 👋
 
 ## About Me
-I'm passionate about linguistics and language-related work, with nearly 8 years of experience as an NLP Linguist and Project Manager. Eager to learn and always up for a challenge.
+I'm passionate about linguistics and language-related work, with nearly 9 years of experience as an NLP Linguist and Project Manager. Eager to bring linguistic expertise and project management finesse to diverse opportunities.
+Exploring new horizons and creating impactful connections!
 
 ## Currently Exploring
 🌱 I'm currently diving deeper into [Project Management].
